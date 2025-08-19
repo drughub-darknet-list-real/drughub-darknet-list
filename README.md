@@ -27,4 +27,6 @@ When exploring this darknet marketplace, always prioritize your security and imp
 
 
 
-Update:  13.08.2025
+
+
+Update:  19 August 2025 url is live and reachable
