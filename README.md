@@ -31,4 +31,6 @@ When exploring this darknet marketplace, always prioritize your security and imp
 
 
 
-Update:  23 August link is active and clickable
+
+
+Update:  12 September
